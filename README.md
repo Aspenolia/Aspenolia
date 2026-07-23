@@ -1,7 +1,7 @@
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
 
 
-![](https://komarev.com/ghpvc/?username=your-github-Aspenolia&label=Sweet+Buns&base=80&color=AF9E8A&style=flat-square&abbreviated=true)
+![](https://komarev.com/ghpvc/?username=your-github-Aspenolia&label=Sweet+Buns&base=0&color=AF9E8A&style=flat-square&abbreviated=true)
 [🀄️🌼🗝🍪🕯🧺🏮]
 # let's see what fate had brought in store for us! : :  
 
