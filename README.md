@@ -1,3 +1,5 @@
+<img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
+
 [🀄️🌼🗝🍪🕯🧺🏮]
 # let's see what fate had brought in store for us! : :  
 ![Sweet loaves!](https://komarev.com/ghpvc/?username=Aspenolia)
@@ -18,6 +20,8 @@ First: English
 Japanese, Russian, Spanish, German (new)!
 
 ## 🌐 Socials:
+<img width="735" height="551" alt="image" src="https://github.com/user-attachments/assets/3d9e6afe-82d0-4e73-b9e8-51c3ea9e44ad" />
+
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/Makkurozthing) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/unpurifiedguilt) 
 
 ## FUN FACTS! 
@@ -25,3 +29,5 @@ Japanese, Russian, Spanish, German (new)!
 ૮ ˶ˆ ﻌ ˆ˶ ა
 fun fact 1: I'm hypersensitive with emotions and laugh really easily but can also get upset really easily!
 fun fact 2: a lot of people actually call me Azure because of psst tracks I've delt with! yes this includes getting stabbed,, in that area,, I'm okay though! ^^
+
+<img width="551" height="551" alt="image" src="https://github.com/user-attachments/assets/b21fa1a3-05a5-47fa-a4e7-aaa56bf68b09" />
