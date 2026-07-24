@@ -24,7 +24,7 @@ I'm studying multiple languages at the moment! 🌻<br>Fandoms: tadc,tmirb,forsa
 : : ;🗡🪰↓
 🕰 i 𝓛𝓸𝓥𝓔. Nature 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔! 🫧🪞🦢
 ꉂ૮(°□°’˶)ა I’m not attracted to you in ‘that’ way.
-💬 18+ dni, other basic criteria tbh
+💬 18+ iwc, other basic criteria tbh
 <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/c131aee3-c11c-4334-8994-3c13ad6a365a" />
 
 Reminder don't copy or take inspo off my designs, thank you! <3
