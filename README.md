@@ -8,7 +8,7 @@ I wouldn't want someone interested in this project to wate their time if I go of
 
 
 
-[🀄️🌼🗝🍪🕯🧺🏮]
+[🦔🍂🥩🗝🍪🕯🧺🏮]
         
   ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure''
 Idk what my deal is, but, I get jealous really easily. 
@@ -21,7 +21,7 @@ My pronouns are he/they, I don't mind any pronouns but feminine ones, unless bei
 # 🪈🌾 About Me:
 I'm studying multiple languages at the moment! 🌻<br>Fandoms: tadc,tmirb,forsaken,soue,P!, regretevator, adm, and more! 🏷<br>Minor. 📻<br>Botanist and Herbologist! 🎐
 "(っ- ‸ - ς)ᶻ 𝗓 𐰁
-: : ;🗡🪻↓
+: : ;🗡🪰↓
 🕰 i 𝓛𝓸𝓥𝓔. Nature 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔! 🫧🪞🦢
 ꉂ૮(°□°’˶)ა I’m not attracted to you in ‘that’ way.
 💬 18+ dni, other basic criteria tbh
@@ -32,9 +32,10 @@ Reminder don't copy or take inspo off my designs, thank you! <3
 1ᴡ2 🪐
 Languages,
 First: 𝔈𝔫𝔤𝔩𝔦𝔰𝔥
-Japanese, Russian, Spanish, German (new)! 🧺
+Currently learning+
+Japanese, Russian, Spanish, German (new)! 🥾
 
-## 🌐 Socials:
+## 🧳 Socials:
 <img width="735" height="551" alt="image" src="https://github.com/user-attachments/assets/3d9e6afe-82d0-4e73-b9e8-51c3ea9e44ad" />
 
 [![Pinterest](https://img.shields.io/badge/Pinterest-%23E60023.svg?logo=Pinterest&logoColor=white)](https://pinterest.com/Makkurozthing) [![Twitch](https://img.shields.io/badge/Twitch-%239146FF.svg?logo=Twitch&logoColor=white)](https://twitch.tv/unpurifiedguilt) 
@@ -49,3 +50,4 @@ fun fact 2: a lot of people actually call me 𝔄𝔷𝔲𝔯𝔢 because of pas
 
 Anywhom, I wish you a wonderful day, dear stranger(?)!,
 ᴛᴀᴛᴀ!
+
