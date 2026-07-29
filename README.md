@@ -4,7 +4,7 @@ You may be here for quite a few minutes so read quickly, okay?
 I wouldn't want someone interested in this project to wate their time if I go offline on ponytown now! 
     𓍼ོ.☘︎ ݁˖༘⋆
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
-![](https://komarev.com/ghpvc/?username=your-github-Aspenolia&label=Sweet+Buns&color=AF9E8A&style=flat-square&abbreviated=true)
+
 
 
 [🦔🍂🥩🗝🍪🕯🧺🏮]
