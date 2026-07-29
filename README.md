@@ -5,11 +5,12 @@ I wouldn't want someone interested in this project to wate their time if I go of
     𓍼ོ.☘︎ ݁˖༘⋆
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
 
+![](https://komarev.com/ghpvc/?username=Aspenolia&label=Sweet+Buns!&color=AF9E8A&style=flat-square)
 
 
 [🦔🍂🥩🗝🍪🕯🧺🏮]
         
-  ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure''
+ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure''
 Idk what my deal is, but, I get jealous really easily. 
 My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter
 # let's see what fate had brought in store for us! : :  
