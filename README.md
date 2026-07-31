@@ -1,21 +1,17 @@
 # sօოҽօղҽ? 
-Commissions now open! 
-
-https://lunarhaven.app/?p=79d631f6-f71e-4d06-9cbb-1d522657566d
 
 ~~Let's make haste to introduce myself, yes? 
+ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
+(Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
+Idk what my deal is, but, I get jealous really easily. 
+My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
+
 Pleasepleasepleaseeee don't copy or post my skins! 
 S/nonverbal most of the time!
 Also, when with my partner,their label will usually be snowglobewithseasons or @FR1Z7,
-Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know! 
-
-I'm talkative if I know you, 
-polite=stranger/new friend
-
-Ships: nonono
-Favorite colours: Montana grape, hickory, and cacao!
-I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!) 
-Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others! 
+Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know!
+C'h allowed lalalalala 
+Feel free to int ofc, 
     𓍼ོ.☘︎ ݁˖༘⋆
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
 
@@ -24,10 +20,15 @@ Even if I don't know you, please, feel free to vent. I understand the struggles 
 
 [🦔🍂🥩🗝🍪🕯🧺🏮]
         
-ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
-(Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
-Idk what my deal is, but, I get jealous really easily. 
-My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
+ALSO NO I DONT BITE FOR EVERYONE SAYING THAT I DO 😭
+
+I'm talkative if I know you, 
+I like to speak formally sometimes though! 
+
+Ships: nonono
+Favorite colours: Montana grape, hickory, and cacao!
+I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!) 
+Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others!  
 
 I LOVE THE SOLANUM DULCAMARA! or as simple terms put it, bittersweet nightshades! 
 
@@ -63,7 +64,7 @@ Japanese, Russian, Spanish, German (new)! 🥾
 ## FUN FACTS! 
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
-fun fact 1: I'm hypersensitive with emotions and laugh really easily but can also get upset really easily!
+fun fact 1: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily, also insanely clingy with @FR1Z7 so if we're on main map we'll most likely always be near/next to eachother! 
 fun fact 2: a lot of people actually call me Azure because of past experiences I've delt with! yes this includes getting stabbed,, in that area,, I'm okay though! ^ ^ 
 
 <img width="551" height="551" alt="image" src="https://github.com/user-attachments/assets/b21fa1a3-05a5-47fa-a4e7-aaa56bf68b09" />
