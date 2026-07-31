@@ -1,4 +1,6 @@
 # sօოҽօղҽ? 
+(Wip)
+<img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/88701c25-f3f3-4247-aa00-632236b2e42a" />
 
 ~~Let's make haste to introduce myself, yes? 
 ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
