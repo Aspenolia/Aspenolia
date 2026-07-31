@@ -5,23 +5,28 @@ S/nonverbal most of the time!
 Also, when with my partner,their label will usually be snowglobewithseasons or @FR1Z7,
 Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know! 
 
+I'm talkative if I know you, 
+polite=stranger/new friend
+
 Ships: nonono
 Favorite colours: Montana grape, hickory, and cacao!
-I make semi-realistic art as well! 
+I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!) 
 Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others! 
     𓍼ོ.☘︎ ݁˖༘⋆
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
 
-![](https://komarev.com/ghpvc/?username=Aspenolia&label=Sweet+Buns!&color=AF9E8A&style=flat-square)
+![](https://komarev.com/ghpvc/?username=Aspenolia&label=sun+Flowers!&color=AF9E8A&style=flat-square)
 
 
 [🦔🍂🥩🗝🍪🕯🧺🏮]
         
-ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure''
+ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
+(Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
 Idk what my deal is, but, I get jealous really easily. 
-My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matte, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
+My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
 
 I LOVE THE SOLANUM DULCAMARA! or as simple terms put it, bittersweet nightshades! 
+
 
 # let's see what fate had brought in store for us! : :  
 
@@ -31,10 +36,11 @@ I LOVE THE SOLANUM DULCAMARA! or as simple terms put it, bittersweet nightshades
 # 🪈🌾 About Me:
 I'm studying multiple languages at the moment! 🌻<br>Fandoms: tadc,tmirb,forsaken,soue,P!, regretevator, adm, and more! 🏷<br>Minor. 📻<br>Botanist and Herbologist! 🎐
 "(っ- ‸ - ς)ᶻ 𝗓 𐰁
+
 : : ;🗡🪰↓
 🕰 i 𝓛𝓸𝓥𝓔. Nature 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔 𝓛𝓸𝓥𝓔! 🫧🪞🦢
-ꉂ૮(°□°’˶)ა I’m not attracted to you in ‘that’ way.
-💬 18+ iwc, other basic criteria tbh
+ꉂ૮(°□°’)ა I’m not attracted to you in ‘that’ way.
+💬 18+ iwc, other basic criteria~
 <img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/c131aee3-c11c-4334-8994-3c13ad6a365a" />
 
 Reminder don't copy or take inspo off my designs, thank you! <3
@@ -54,7 +60,7 @@ Japanese, Russian, Spanish, German (new)! 🥾
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
 fun fact 1: I'm hypersensitive with emotions and laugh really easily but can also get upset really easily!
-fun fact 2: a lot of people actually call me 𝔄𝔷𝔲𝔯𝔢 because of past experiences I've delt with! yes this includes getting stabbed,, in that area,, I'm okay though! ^ ^ 
+fun fact 2: a lot of people actually call me Azure because of past experiences I've delt with! yes this includes getting stabbed,, in that area,, I'm okay though! ^ ^ 
 
 <img width="551" height="551" alt="image" src="https://github.com/user-attachments/assets/b21fa1a3-05a5-47fa-a4e7-aaa56bf68b09" />
 
