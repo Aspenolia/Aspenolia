@@ -1,7 +1,14 @@
 # sօოҽօղҽ? 
 ~~Let's make haste to introduce myself, yes? 
-You may be here for quite a few minutes so read quickly, okay? 
-I wouldn't want someone interested in this project to wate their time if I go offline on ponytown now! 
+Pleasepleasepleaseeee don't copy or post my skins! 
+S/nonverbal most of the time!
+Also, when with my partner,their label will usually be snowglobewithseasons or @FR1Z7,
+Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know! 
+
+Ships: nonono
+Favorite colours: Montana grape, hickory, and cacao!
+I make semi-realistic art as well! 
+Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others! 
     𓍼ོ.☘︎ ݁˖༘⋆
 <img width="733" height="230" alt="image" src="https://github.com/user-attachments/assets/8d892ef4-40d2-4b1b-b121-f8f3ae35c8ba" />
 
@@ -12,7 +19,10 @@ I wouldn't want someone interested in this project to wate their time if I go of
         
 ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure''
 Idk what my deal is, but, I get jealous really easily. 
-My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter
+My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matte, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
+
+I LOVE THE SOLANUM DULCAMARA! or as simple terms put it, bittersweet nightshades! 
+
 # let's see what fate had brought in store for us! : :  
 
 ![](https://shields.io)
