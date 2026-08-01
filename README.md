@@ -11,6 +11,8 @@
 ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
 (Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
 
+# PRIMARY FUN FACT: I have over 100 azure cosplays, 139 not including irl! 
+
 I get jealous really easily. 
 My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
 
