@@ -4,6 +4,9 @@
 <img width="770" height="43" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 ![](https://komarev.com/ghpvc/?username=Aspenolia&label=sun+Flowers!&color=AF9E8A&style=flat-square)
+
+# I wish to be known as the Azure/Aspen to somewhere/thing one day, but! False hope is as useful as the wrong soil being used on a plant ◞‸◟
+
 ~~Let's make haste to introduce myself, yes? 
 ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
 (Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
