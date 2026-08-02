@@ -53,7 +53,7 @@ I'm studying multiple languages at the moment! 🌻
 "(っ- ‸ - ς)ᶻ 𝗓 𐰁
 
 
-💬 18+ iwc; basic criteria regarding dnis aswell!~
+💬 21+ dni; basic criteria regarding dnis aswell!~
 Reminder don't copy or take inspo off my designs, thank you! <3
 Languages,<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f1cf64d-5f41-4122-b3d2-1d08d02e75ea" />
 Currently learning+
