@@ -1,11 +1,15 @@
-# sօოҽօղҽ? 
+# Look here! ^^ @pt-walk-of-fame @pt-medals @pt-nominations
+<img width="538" height="69" alt="image" src="https://github.com/user-attachments/assets/4ff7073e-3eb3-43ba-ad88-20458c93678c" />
+<img width="521" height="94" alt="image" src="https://github.com/user-attachments/assets/f0cab0e1-0f84-46ce-9b8c-b2d708c5ed0c" />
+<img width="682" height="113" alt="image" src="https://github.com/user-attachments/assets/b468271c-719f-46a3-9d3c-627c39d7fa6e" />
+
 <img width="770" height="43" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="770" height="43" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 ![](https://komarev.com/ghpvc/?username=Aspenolia&label=sun+Flowers!&color=AF9E8A&style=flat-square)
 
-# I wish to be known as the Azure/Aspen to somewhere/thing one day, but! False hope is as useful as the wrong soil being used on a plant. 
+# I wish to be known as the Azure/Aspen of ponytown! <3
 
 ~~Let's make haste to introduce myself, yes? 
 ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
