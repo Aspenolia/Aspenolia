@@ -4,15 +4,16 @@
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="770" height="43" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-![](https://komarev.com/ghpvc/?username=Aspenolia&label=sun+Flowers!&color=AF9E8A&style=flat-square)
+![](https://komarev.com/ghpvc/?username=Aspenolia&label=Sun+Flowers!&color=60370B&style=flat-square)
 
-# I wish to be known as the Azure/Aspen of ponytown! <3
+# I go by Azure/Aspen! (Makkuro if close friends) 
 
 ~~Let's make haste to introduce myself, yes? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/13b0ab08-747e-423b-914a-486a2acd9344" />
 
 
-ɢʀᴇᴇᴛɪɴɢs!, I go by makkuro/Azure'' 
-(Azure or Aspen prefered if I don't have a personal relationship with you if you int with me!) 
+Greetings! '' 
+INFJ-P
+1ᴡ2 🪐
 <img width="85" height="18" alt="image" src="https://github.com/user-attachments/assets/fcab9d98-5782-4fef-a0eb-06dc966095a5" /> <img width="69" height="18" alt="image" src="https://github.com/user-attachments/assets/f1a79698-e48b-4898-9687-998891deaf25" />
 
 
@@ -28,6 +29,7 @@ Pleasepleasepleaseeee don't copy or post my skins!
 
 S/nonverbal most of the time!
 Also, when with my partner,their label will usually be snowglobewithseasons or @FR1Z7, <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5115caba-1bfb-424f-8686-11692315832f" />
+
 Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know!
 C'h allowed lalalalala 
 Feel free to int ofc. 
@@ -40,7 +42,7 @@ I like to speak formally sometimes though!
 
 <img width="770" height="43" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-Ships: nonono
+Ships: nonono: : ;🗡🪰
 Favorite colours: Montana grape, hickory, and cacao!
 I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!)<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/34c6be4d-7bec-4dd0-a892-9bd47aecbd7a" />
 Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others!  
@@ -50,11 +52,9 @@ Even if I don't know you, please, feel free to vent. I understand the struggles 
 I'm studying multiple languages at the moment! 🌻
 "(っ- ‸ - ς)ᶻ 𝗓 𐰁
 
-: : ;🗡🪰↓
+
 💬 18+ iwc; basic criteria regarding dnis aswell!~
 Reminder don't copy or take inspo off my designs, thank you! <3
-INFJ-P
-1ᴡ2 🪐
 Languages,<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f1cf64d-5f41-4122-b3d2-1d08d02e75ea" />
 Currently learning+
 Japanese,Spanish, and Russian (new)!🥾
