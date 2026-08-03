@@ -24,7 +24,7 @@ I get jealous really easily.<img width="20" height="20" alt="image" src="https:/
 
 My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 Pleasepleasepleaseeee don't copy or post my skins! 
 
 S/nonverbal most of the time!
@@ -40,14 +40,14 @@ Feel free to int ofc.
 I'm talkative if I know you, 
 I like to speak formally sometimes though! 
 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 Ships: nonono: : ;🗡🪰
 Favorite colours: Montana grape, hickory, and cacao!
 I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!)<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/34c6be4d-7bec-4dd0-a892-9bd47aecbd7a" />
 Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others!  
 # About Me:
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 I'm studying multiple languages at the moment! 🌻
 "(っ- ‸ - ς)ᶻ 𝗓 𐰁
@@ -60,7 +60,7 @@ Currently learning+
 Japanese,Spanish, and Russian (new)!🥾
 
 ## FUN FACTS! 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
 fun fact 1: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily, also insanely clingy with @FR1Z7 so if we're on main map we'll most likely always be near/next to eachother! 
