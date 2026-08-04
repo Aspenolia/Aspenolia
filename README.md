@@ -4,7 +4,7 @@
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-![](https://komarev.com/ghpvc/?username=Aspenolia&label=Sun+Flowers!&color=60370B&style=flat-square)
+
 
 # I go by Azure/Aspen! (Makkuro if close friends) 
 
