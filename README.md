@@ -5,7 +5,7 @@
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 
-
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=true&hide_remaster=false&bar_color=5b3d00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 # I go by Azure/Aspen! (Makkuro if close friends) 
 
 ~~Let's make haste to introduce myself, yes? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/13b0ab08-747e-423b-914a-486a2acd9344" />
