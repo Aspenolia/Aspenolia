@@ -1,3 +1,5 @@
+<img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/855cd990-cd5a-48fc-9e0e-cd80efb7c995" />
+
 # No inspo, copying, or color picking on my ponies. No exceptions nor excuses, if you do. You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡
 Notice: the more i hang out at main map, the more azures i see slowly start looking like mine (i genuinely am scared of being copied or someone taking inspo, however, this may also just be me being paranoid.) 
 # Look here sunflowers! 
