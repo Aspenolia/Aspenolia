@@ -2,14 +2,14 @@
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4c2c00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 # No inspo, copying, or color picking on my ponies. No exceptions nor excuses, if you do. You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡
 Notice: the more i hang out at main map, the more azures i see slowly start looking like mine (i genuinely am scared of being copied or someone taking inspo, however, this may also just be me being paranoid.) 
 # Look here sunflowers! 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
-<img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/855cd990-cd5a-48fc-9e0e-cd80efb7c995" />
+<img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/9cbe8350-005f-496b-b3b3-4f594296de41" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4c2c00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
 
 # I go by Azure/Aspen! (Makkuro if close friends) 
