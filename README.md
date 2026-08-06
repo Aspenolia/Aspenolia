@@ -1,3 +1,4 @@
+Notice: the more i hang out at main map, the more azures i see slowly start looking like mine (i genuinely am scared of being copied or someone taking inspo, howver, this may also just be me being paranoid.) 
 # Look here sunflowers! 
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
