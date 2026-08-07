@@ -1,3 +1,5 @@
+
+
 # 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=805F49&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
@@ -19,12 +21,20 @@ $\color{#69381A}{\text{No exceptions nor excuses, if you do, }}$
 
 $\color{E5C4AA}{\text{You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡}}$
 # 
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
+<img width="2360" height="937" alt="image" src="https://github.com/user-attachments/assets/698c0a33-6bad-45cf-b99c-a41b3071b6dc" />
+<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 $\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
 
 I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
 
+
+
+
 $\color{#A6785A}{\text{Even if I don't know you, please, feel free to vent.}}$
+
+
 
 $\color{#69381A}{\text{when I'm with @FR1Z7 pleaseeee dniuf}}$
 
@@ -34,6 +44,7 @@ $\color{#FCF0E9}{\text{Ships:nonono }}$
 
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
+# 
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/0e1ad88e-dcf8-4837-a7c0-0871a7278dc0" />
