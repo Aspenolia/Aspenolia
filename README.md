@@ -1,78 +1,36 @@
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=600&color=4C260B&center=true&repeat=false&width=800&lines=+++++%22I+trusted+you.+%22;+++++%22You+gave+back+to+me.+%22;+++++%22I+shalt+not+forgive+any.++%22;+++++%22You+ruined+me.%22+)](https://git.io/typing-svg)
+# 
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=805F49&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
+$\color{#FCF0E9}{\text{unwilling. such is what many are. }}$
+
+$\color{#E5C4AA}{\text{INFJ-P 1ᴡ2 }}$
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4c2c00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
-# No inspo, copying, or color picking on my ponies. No exceptions nor excuses, if you do. You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡
-Notice: the more i hang out at main map, the more azures i see slowly start looking like mine (i genuinely am scared of being copied or someone taking inspo, however, this may also just be me being paranoid.) 
-# Look here sunflowers! 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
-<img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/faa9a995-8ec0-4c14-ab54-ac7271b17a12" />
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 
+<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e68d030-d9d8-462c-b32e-70e291589a7a" />
 
-# I go by Azure/Aspen! (Makkuro if close friends) 
+$\color{#A6785A}{\text{No inspo, copying, or color picking on my ponies. }}$
 
-~~Let's make haste to introduce myself, yes? <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/13b0ab08-747e-423b-914a-486a2acd9344" />
+$\color{#69381A}{\text{No exceptions nor excuses, if you do, }}$
 
+$\color{E5C4AA}{\text{You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡}}$
+# 
 
-Greetings! '' 
-INFJ-P
-1ᴡ2 🪐
-<img width="85" height="18" alt="image" src="https://github.com/user-attachments/assets/fcab9d98-5782-4fef-a0eb-06dc966095a5" /> <img width="69" height="18" alt="image" src="https://github.com/user-attachments/assets/f1a79698-e48b-4898-9687-998891deaf25" />
+$\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
 
+I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
 
+$\color{#A6785A}{\text{Even if I don't know you, please, feel free to vent.}}$
 
-# PRIMARY FUN FACT: I have over 100 azure cosplays, 139 not including irl! 
+$\color{#69381A}{\text{when I'm with @FR1Z7 pleaseeee dniuf}}$
 
-I get jealous really easily.<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/b5b63f57-ba9a-49b0-b6da-7345a9d97e8f" />
+$\color{#E5C4AA}{\text{S/nonverbal most of the time!}}$
 
-My pronouns are he/they, I don't mind any pronouns but feminine ones, unless being used on me in a joking matter, I'm not the best at communication when it comes to strangers or expressing feelings (surrounded by anger) 
+$\color{#FCF0E9}{\text{Ships:nonono }}$
 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
-Pleasepleasepleaseeee don't copy or post my skins! 
-
-S/nonverbal most of the time!
-Also, when with my partner,their label will usually be snowglobewithseasons or @FR1Z7, <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/5115caba-1bfb-424f-8686-11692315832f" />
-
-Dear strangers, when I'm with them pleaseeee dni, ik ik I may be strict, but id rather talk to them than people I don't know!
-C'h allowed lalalalala 
-Feel free to int ofc. 
-    𓍼ོ.☘︎ ݁˖༘⋆
-
-
-
-I'm talkative if I know you, 
-I like to speak formally sometimes though! 
-
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
-
-Ships: nonono: : ;🗡🪰
-Favorite colours: Montana grape, hickory, and cacao!
-I make semi-realistic art as well! (Usually posted on my lunarhaven so check it out!)<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/34c6be4d-7bec-4dd0-a892-9bd47aecbd7a" />
-Even if I don't know you, please, feel free to vent. I understand the struggles most go through and I love being able to comfort others!  
-# About Me:
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
-
-I'm studying multiple languages at the moment! 🌻
-"(っ- ‸ - ς)ᶻ 𝗓 𐰁
-
-
-💬 21+ dni; basic criteria regarding dnis aswell!~
-Reminder don't copy or take inspo off my designs, thank you! <3
-Languages,<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7f1cf64d-5f41-4122-b3d2-1d08d02e75ea" />
-Currently learning+
-Japanese,Spanish, and Russian (new)!🥾
-
-## FUN FACTS! 
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
-fun fact 1: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily, also insanely clingy with @FR1Z7 so if we're on main map we'll most likely always be near/next to eachother! 
-fun fact 2: a lot of people actually call me Azure because of past experiences I've delt with! yes this includes getting stabbed,, in that area,, I'm okay though! 
-
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
-<img width="1200" height="1200" alt="image" src="https://github.com/user-attachments/assets/610b8b40-44be-40cb-9d09-bfc31f0f09ca" />
-<img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
