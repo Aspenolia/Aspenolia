@@ -1,3 +1,4 @@
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&duration=2000&pause=600&color=4C260B&center=true&repeat=false&width=800&lines=+++++%22I+trusted+you.+%22;+++++%22You+gave+back+to+me.+%22;+++++%22I+shalt+not+forgive+any.++%22;+++++%22You+ruined+me.%22+)](https://git.io/typing-svg)
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
