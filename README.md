@@ -1,3 +1,5 @@
+Awww aww ty for copying my EXACT words. 
+<img width="660" height="1013" alt="image" src="https://github.com/user-attachments/assets/c4a3ab43-c25e-42ed-9481-e83b4d0473dd" />
 
 
 # 
@@ -44,6 +46,8 @@ $\color{#FCF0E9}{\text{Ships:nonono }}$
 
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
+
+Fun fact 1: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily, also VERY clingy around people I care for ^^
 # 
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
