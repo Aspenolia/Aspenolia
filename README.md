@@ -44,7 +44,9 @@ $\color{#FCF0E9}{\text{Ships:nonono }}$
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
 
-Fun fact: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily, also VERY clingy around people I care for ^^
+$\color{#69381A}{\text{Fun fact: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
+
+$\color{#A6785A}{\text{VERY clingy around people I care for!}}$
 # 
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
