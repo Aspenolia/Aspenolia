@@ -1,6 +1,3 @@
-Awww aww ty for copying my EXACT words. 
-<img width="660" height="1013" alt="image" src="https://github.com/user-attachments/assets/c4a3ab43-c25e-42ed-9481-e83b4d0473dd" />
-
 
 # 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=805F49&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
