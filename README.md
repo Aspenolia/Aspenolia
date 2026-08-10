@@ -23,12 +23,13 @@ $\color{#69381A}{\text{No exceptions nor excuses, if you do, }}$
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   $\color{E5C4AA}{\text{You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡ }}$
 
+$\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
+
 # 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="937" alt="image" src="https://github.com/user-attachments/assets/698c0a33-6bad-45cf-b99c-a41b3071b6dc" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-$\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
 
 I'm not the best at communication when it comes to strangers or expressing feelings 
 
