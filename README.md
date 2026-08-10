@@ -1,12 +1,14 @@
-
-# the dog goes bark/woof!
-
-
+# 
+![https://file.garden/anejofeTPXTQkEOz/IMG_2183.png](https://file.garden/anejofeTPXTQkEOz/IMG_2183.png)
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=805F49&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
+
+
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="1640" alt="image" src="https://github.com/user-attachments/assets/5350d05b-65c8-471e-b5ba-7b01f95a8a74" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
+
+
 
 $\color{#FCF0E9}{\text{unwilling. such is what many are. }}$
 
@@ -28,10 +30,14 @@ $\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures 
    <img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#69381A} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#A6785A} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} ๐·°(৹˃ᗝ˂৹)°·๐}}$
 
 # 
+
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="937" alt="image" src="https://github.com/user-attachments/assets/698c0a33-6bad-45cf-b99c-a41b3071b6dc" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
+# 
+
+![https://file.garden/anejofeTPXTQkEOz/IMG_2183.png](https://file.garden/anejofeTPXTQkEOz/IMG_2183.png)
 
 I'm not the best at communication when it comes to strangers or expressing feelings 
 
@@ -60,13 +66,13 @@ $\color{#69381A}{\text{I'm hypersensitive with emotions and laugh/get excited re
    
 # 
 
+![https://file.garden/anejofeTPXTQkEOz/IMG_2183.png](https://file.garden/anejofeTPXTQkEOz/IMG_2183.png)
+
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e68d030-d9d8-462c-b32e-70e291589a7a" />
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/0e1ad88e-dcf8-4837-a7c0-0871a7278dc0" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=90&duration=3000&pause=30&color=E5C4AA&center=true&repeat=false&width=2000&height=200&lines=%22You+left+me+to+die.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=90&duration=3000&pause=30&color=E5C4AA&center=true&repeat=false&width=2000&height=200&lines=%22You+left+me+to+rot.%22)](https://git.io/typing-svg)
 
-
-<img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#FCF0E9} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#A6785A} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} ๐·°(৹˃ᗝ˂৹)°·๐}}$
