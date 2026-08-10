@@ -8,7 +8,7 @@ src="[https://file.garden/aiO9m-bAgXvOABPl/Untitled16_20260804221644.png](https:
 
 $\color{#FCF0E9}{\text{unwilling. such is what many are. }}$
 
-$\color{#E5C4AA}{\text{INFJ-P 1ᴡ2 }}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#E5C4AA}{\text{INFJ-P 1ᴡ2 }}$
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31s3g5osfacsr3xi2jktb6ha3xna&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=4c2c00&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
 
@@ -32,7 +32,7 @@ I'm not the best at communication when it comes to strangers or expressing feeli
 
 
 
-$\color{#A6785A}{\text{Even if I don't know you, please, feel free to vent.}}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{Even if I don't know you, please, feel free to vent.}}$
 
 
 
@@ -40,14 +40,14 @@ $\color{#69381A}{\text{when I'm with @FR1Z7 pleaseeee dniuf}}$
 
 $\color{#E5C4AA}{\text{S/nonverbal most of the time!}}$
 
-$\color{#FCF0E9}{\text{Ships:nonono }}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#FCF0E9}{\text{Ships:nonono }}$
 
 
 ૮ ˶ˆ ﻌ ˆ˶ ა
 
 $\color{#69381A}{\text{Fun fact: I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
 
-$\color{#A6785A}{\text{VERY clingy around people I care for!}}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{VERY clingy around people I care for!}}$
 # 
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
