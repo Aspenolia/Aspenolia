@@ -63,12 +63,10 @@ $\color{#69381A}{\text{I'm hypersensitive with emotions and laugh/get excited re
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{VERY clingy around people I care for!}}$
 
-   
-# 
+#
 
 ![https://file.garden/anejofeTPXTQkEOz/IMG_2183.png](https://file.garden/anejofeTPXTQkEOz/IMG_2183.png)
 
-<img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e68d030-d9d8-462c-b32e-70e291589a7a" />
 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/0e1ad88e-dcf8-4837-a7c0-0871a7278dc0" />
