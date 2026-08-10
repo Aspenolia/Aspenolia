@@ -72,5 +72,5 @@ $\color{#69381A}{\text{I'm hypersensitive with emotions and laugh/get excited re
 <img width="937" height="351" alt="image" src="https://github.com/user-attachments/assets/0e1ad88e-dcf8-4837-a7c0-0871a7278dc0" />
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/bd3d47a4-750a-4858-a0a7-3d8e858c06b5" />
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=90&duration=3000&pause=30&color=E5C4AA&center=true&repeat=false&width=2000&height=200&lines=%22You+left+me+to+rot.%22)](https://git.io/typing-svg)
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=90&duration=3000&pause=30&color=E5C4AA&center=true&repeat=false&width=2000&height=200&lines=%22I+gave+all+my+trust.%22)](https://git.io/typing-svg)
 
