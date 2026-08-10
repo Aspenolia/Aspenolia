@@ -15,11 +15,11 @@ $\color{#FCF0E9}{\text{unwilling. such is what many are. }}$
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e68d030-d9d8-462c-b32e-70e291589a7a" />
 
-$\color{#A6785A}{\text{No inspo, copying, or color picking on my ponies. }}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{No inspo, copying, or color picking on my ponies. }}$
 
 $\color{#69381A}{\text{No exceptions nor excuses, if you do, }}$
 
-$\color{E5C4AA}{\text{You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡}}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ$\color{E5C4AA}{\text{You're getting blocked （๑ ᷇ 𖥦 ᷆๑)♡}}$
 # 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="937" alt="image" src="https://github.com/user-attachments/assets/698c0a33-6bad-45cf-b99c-a41b3071b6dc" />
