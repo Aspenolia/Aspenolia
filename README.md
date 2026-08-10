@@ -25,6 +25,8 @@ $\color{#69381A}{\text{No exceptions nor excuses, if you do, }}$
 
 $\color{#FCF0E9}{\text{Notice: the more i hang out at main map, the more azures i see slowly start looking like mine.}}$
 
+   <img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#69381A} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#A6785A} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} ๐·°(৹˃ᗝ˂৹)°·๐}}$
+
 # 
 <img width="2360" height="157" alt="image" src="https://github.com/user-attachments/assets/0f902b53-f43c-4c6a-b894-e8eceab45da7" />
 <img width="2360" height="937" alt="image" src="https://github.com/user-attachments/assets/698c0a33-6bad-45cf-b99c-a41b3071b6dc" />
@@ -54,6 +56,8 @@ $\color{#E5C4AA}{\text{S/nonverbal most of the time!}}$
 $\color{#69381A}{\text{I'm hypersensitive with emotions and laugh/get excited really easily but can also get upset really easily. }}$
 
    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#A6785A}{\text{VERY clingy around people I care for!}}$
+
+   
 # 
 
 <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/2e68d030-d9d8-462c-b32e-70e291589a7a" />
@@ -65,4 +69,4 @@ $\color{#69381A}{\text{I'm hypersensitive with emotions and laugh/get excited re
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Caveat&size=90&duration=3000&pause=30&color=E5C4AA&center=true&repeat=false&width=2000&height=200&lines=%22You+left+me+to+die.%22)](https://git.io/typing-svg)
 
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤㅤ ㅤㅤㅤ    ㅤ ㅤ  ㅤㅤ <img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#FCF0E9} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#A6785A} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} ๐·°(৹˃ᗝ˂৹)°·๐}}$
+<img src="[https://cdn.imgchest.com/files/a167d8712a84.gif](https://file.garden/anejofeTPXTQkEOz/IMG_2177.png)" width="20px"> ㅤ  [*strawpage*](https://makkvr0hz.straw.page) ${{\color{#FCF0E9} ♡}}$ [*guns.lol*](https://guns.lol/aspenolia) ${{\color{#A6785A} ♡}}$ [*prns*](https://pronouns.cc/@AZVR3WR4TH)ㅤ  ${{\color{#E5C4AA} ๐·°(৹˃ᗝ˂৹)°·๐}}$
