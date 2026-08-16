@@ -54,7 +54,7 @@ $\color{#69381A}{\text{when I'm with @FR1Z7 pleaseeee dniuf}}$
 
 $\color{#E5C4AA}{\text{S/nonverbal most of the time!}}$
 
-   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#FCF0E9}{\text{Ships:nonono }}$
+   ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ  ㅤㅤ ㅤ ㅤ ㅤ ㅤ ㅤ    $\color{#FCF0E9}{\text{Ships:no. }}$
 
 
 . . .   ૮ ˶ˆ ﻌ ˆ˶ ა
