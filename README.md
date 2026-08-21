@@ -1,3 +1,8 @@
+hello beloved copycat.
+
+@blsuf
+
+https://en.pronouns.page/@Aspen_778
 
 ![https://file.garden/anejofeTPXTQkEOz/IMG_2183.png](https://file.garden/anejofeTPXTQkEOz/IMG_2183.png)
 
