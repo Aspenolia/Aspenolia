@@ -14,7 +14,7 @@ $\color{#825435}{\text{when I'm with @FR1Z7 please dniuf，dni if associated or 
 
 <p align="center"
    
-$\color{#5C2F17}{\text{infp 1ᴡ2 sp6. ambiverted leaning intro,}}$
+$\color{#5C2F17}{\text{infp 1ᴡ2 sp6. ambiverted}}$
 
 <p align="center"
 
