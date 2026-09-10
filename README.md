@@ -18,7 +18,7 @@ $\color{#5C2F17}{\text{infp 1ᴡ2 sp6. ambiverted}}$
 
 <p align="center"
 
-$\color{#4F0E06}{\text{AzureWrath irl, fullfic. ships and doubles strictly dni}}$
+$\color{#4F0E06}{\text{AzureWrath irl, pts AzureWrath/Aspen (forsaken and voidtales fullfic.) ships and doubles strictly dni}}$
 
 <p align="center"<p align="center"><img src="(https://file.garden/anejofeTPXTQkEOz/Untitled932_20260823121859.png)" />
 
