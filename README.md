@@ -1,6 +1,6 @@
 <div align="center">
   <details>
-    <summary>$${\color{#E6E5E3} ҂\color{#E6E5E3} ┈ \color{#E6E5E3}┈}$$</summary>
+    <summary>${\text{\color{#E6E5E3} ♡˙°ʚᕱ⑅ᕱɞ°˙♡}}$ </summary>
     <p>${\text{\color{#4F0E06} (lalalalala) Do you believe}}$</p>
    <p>${\text{\color{#5C2F17} 𝗜𝘯 𝘭𝗼𝘷𝗲 𝗮𝘵 𝘧𝗶𝘳𝘀𝘵 𝘴𝗶𝘨𝗵𝘵? 。。。}}$</p>
    <p>${\text{\color{#825435} Do you believe in fate?一}}$</p>
