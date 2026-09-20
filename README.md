@@ -29,7 +29,7 @@ $\color{#5C2F17}{\text{𝗶𝘯𝗳𝘱 𝟣ᴡ𝟤 𝘴𝗽𝟨. 𝗮𝘮𝗯�
 $\color{#4F0E06}{\text{AzureWrath irl, pts AzureWrath/Aspen (forsaken and voidtales fullfic.) ships and doubles strictly dni}}$
 
 
-![Alt Text](https://file.garden/anejofeTPXTQkEOz/Untitled928_20260920123354.png)
+![Alt Text](https://file.garden/anejofeTPXTQkEOz/Untitled928_20260920124605.png)
 
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=330F1C&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22+I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
