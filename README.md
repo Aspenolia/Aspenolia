@@ -18,7 +18,7 @@ $\color{#AD9A90}{\text{𝗦/𝗻𝘰𝗻𝘷𝗲𝘳𝗯𝘢𝗹 𝗺𝘰𝘀�
 
 <p align="center"
    
-$\color{#825435}{\text{when I'm with @FR1Z7 please dniuf，dni if u claim to be pts azurewrath/Aspen,im being sensitive i know.}}$
+$\color{#825435}{\text{when I'm with @FR1Z7 dniuf，i block FREELY. Dni if you claim yourself as ponytowns Azure/Aspen, I WILL act hostile around you, sorry！}}$
 
 <p align="center"
    
