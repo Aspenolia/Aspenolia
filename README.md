@@ -31,8 +31,10 @@ $\color{#4F0E06}{\text{AzureWrath irl, pts AzureWrath/Aspen (forsaken and voidta
 
 ![Alt Text](https://file.garden/anejofeTPXTQkEOz/Untitled928_20260920124605.png)
 
+<p align="center"
+  
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Are+You+Serious&size=50&duration=2000&pause=700&color=330F1C&center=true&vCenter=true&repeat=false&width=600&height=140&lines=Our+fate%2C+;Wast+not+destined+to+part.+;You've+shown+how+unlovable+I+am.+;You+RUINED+me.+)](https://git.io/typing-svg)
 
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=New+Tegomin&size=90&duration=3000&pause=300&color=330F1C&center=true&repeat=false&width=1500&height=200&lines=%22+You+ruined+me.+%22+;%22+I+shall+never+forget+that+day.+%22;%22+I+shall+never+be+worthy.%22+;%22I+am.%22+;%22Unlovable.%22+)](https://git.io/typing-svg)
 <p align="center"
    
 $\color{#5C2F17}{\text{ 𝘂𝘯𝘄𝘪𝗹𝘭𝗶𝘯𝗴. 𝘴𝘂𝘤𝗵 𝗶𝘴 𝘸𝗵𝘢𝘁 𝗺𝘢𝗻𝘺 𝘢𝗿𝘦. }}$
