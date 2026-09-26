@@ -99,6 +99,8 @@ $\color{#5C2F17}{\text{ 𝘂𝘯𝘄𝘪𝗹𝘭𝗶𝘯𝗴. 𝘴𝘂𝘤𝗵 �
 
 [ponyhonors](https://github.com/Ponyhonors)
 
+[daggerstruckmage](https://github.com/daggerstruckmage)
+
    </details>
 </div>
 
