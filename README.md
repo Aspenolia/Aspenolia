@@ -101,6 +101,8 @@ $\color{#5C2F17}{\text{ 𝘂𝘯𝘄𝘪𝗹𝘭𝗶𝘯𝗴. 𝘴𝘂𝘤𝗵 �
 
 [daggerstruckmage](https://github.com/daggerstruckmage)
 
+[casinotown](https://github.com/casinotown)
+
    </details>
 </div>
 
