@@ -22,7 +22,7 @@ $\color{#825435}{\text{when I'm with @FR1Z7 dniuf，i block FREELY. Dni if you c
 
 <p align="center"
    
-$\color{#5C2F17}{\text{𝗶𝘯𝗳𝘱 𝟣ᴡ𝟤 𝘴𝗽𝟨. 𝗮𝘮𝗯𝘪𝘃𝘦𝗿𝘵𝗲𝘥}}$
+$\color{#5C2F17}{\text{𝗶𝘯𝗳𝘱 6w5 𝘴𝗽𝟨. 𝗮𝘮𝗯𝘪𝘃𝘦𝗿𝘵𝗲𝘥}}$
 
 <p align="center"
 
