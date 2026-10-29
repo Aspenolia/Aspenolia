@@ -103,6 +103,15 @@ $\color{#5C2F17}{\text{ 𝘂𝘯𝘄𝘪𝗹𝘭𝗶𝘯𝗴. 𝘴𝘂𝘤𝗵 �
 
 [casinotown](https://github.com/casinotown)
 
+[pt-piddles.jet](https://github.com/piddlesjet)
+
+[THE-TEMPIST](https://github.com/THE-TEMPIST)
+
+[pt-everypony](https://github.com/pt-everypony)
+
+[kin-town](https://github.com/kin-town)
+
+
    </details>
 </div>
 
